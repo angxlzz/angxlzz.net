@@ -1,2 +1,3 @@
-# angxlzz.net
-scripts
+# Welcome
+
+1) Fuck off
